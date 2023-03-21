@@ -1,0 +1,1 @@
+ta ai meu veinho é nois parceiro, e sim esse bot existe e eu programei ele em JS, ta no meu github, ai tive essa ideia de fazer essa bomba, espero que vc goste
